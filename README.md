@@ -11,4 +11,3 @@ Here are some ideas to get you started:
 - 📫 How to reach me: fengchiu.tsaigoss@gmail.com
 - 😄 Pronouns: Her/She
 - ⚡ Fun fact: I am a multilingual speaker--- Chinese, English, and Taiwanese
--->
